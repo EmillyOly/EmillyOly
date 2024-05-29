@@ -1,16 +1,16 @@
-## Hi there 👋
+## Olá, sejam bem vindos ao meu diario de estudante
+Sou a Emilly, e eu vou estar usando esse espaço para compartinhando os meus projetos com vocês 
 
-<!--
-**EmillyOly/EmillyOly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+* bom, primeiro vou me apresentar 
+  - tenho 17 anos.💙
+  - estou estudando no Alura.😊
+  - estudo no ensino medio integral.🐛
+  - sou boa cozinhando.🦋
+ 
+# Como entrar em contato comigo 🤙
 
-Here are some ideas to get you started:
+-Emilly142725@gmail.com
+-Miemillyz
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![](https://media1.tenor.com/m/ZuXnTDxIbjQAAAAC/shocked-shocked-cat.gif)        ![](https://media1.tenor.com/m/jysc1QyPQjsAAAAd/cat-dance.gif)
