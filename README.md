@@ -4,7 +4,7 @@ Sou a Emilly, e eu vou estar usando esse espaço para compartinhando os meus pro
 * bom, primeiro vou me apresentar 
   - tenho 17 anos.💙
   - estou estudando no Alura.😊
-  - estudo no ensino medio integral.🐛
+  - estudo em ensino integral.🐛
   - sou boa cozinhando.🦋
  
 # Como entrar em contato comigo 🤙
