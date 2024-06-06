@@ -10,7 +10,6 @@ Sou a Emilly, e eu vou estar usando esse espaço para compartinhando os meus pro
 # Como entrar em contato comigo 🤙
 
 -Emilly142725@gmail.com
--Miemillyz
 
 
 ![](https://media1.tenor.com/m/ZuXnTDxIbjQAAAAC/shocked-shocked-cat.gif)        ![](https://media1.tenor.com/m/jysc1QyPQjsAAAAd/cat-dance.gif)
