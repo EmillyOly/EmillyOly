@@ -1,5 +1,5 @@
 ## Olá, sejam bem vindos ao meu diario de estudante
-Sou a Emilly, e eu vou estar usando esse espaço para compartinhando os meus projetos com vocês 
+Sou a Emilly, e eu vou estar usando esse espaço para compartinhar os meus projetos com vocês 
 
 * bom, primeiro vou me apresentar 
   - tenho 17 anos.💙
